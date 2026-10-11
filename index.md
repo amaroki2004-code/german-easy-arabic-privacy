@@ -16,7 +16,7 @@ title: Privacy Policy – German Easy (Arabic)
 
 **الأطفال:** لا نجمع أي بيانات من أي مستخدم، بما في ذلك الأطفال.
 
-**التواصل:** amaroki2004@yahoo.com
+**التواصل:** easyseries.apps@gmail.com
 
 </div>
 
@@ -64,6 +64,6 @@ We may update this policy from time to time. Changes will be posted on this page
 
 ## 8. Contact Us
 
-Questions? Email: amaroki2004@yahoo.com
+Questions? Email: easyseries.apps@gmail.com
 
 Support page: [support](support.html)
