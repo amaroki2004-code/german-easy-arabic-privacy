@@ -6,7 +6,7 @@ title: Support – German Easy (Arabic)
 
 # الدعم – ألماني سهل
 
-لأي سؤال أو مشكلة أو اقتراح، راسلنا على: **amaroki2004@yahoo.com**
+لأي سؤال أو مشكلة أو اقتراح، راسلنا على: **easyseries.apps@gmail.com**
 
 نردّ عادةً خلال 48 ساعة.
 
@@ -28,7 +28,7 @@ title: Support – German Easy (Arabic)
 
 # Support – German Easy (Arabic)
 
-For any question, problem or suggestion, email us at **amaroki2004@yahoo.com**. We usually reply within 48 hours.
+For any question, problem or suggestion, email us at **easyseries.apps@gmail.com**. We usually reply within 48 hours.
 
 ## FAQ
 
